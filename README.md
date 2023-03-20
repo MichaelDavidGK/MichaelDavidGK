@@ -1,4 +1,7 @@
-### Hi there 👋
+### Heyo 
+[![meow](https://cdn.discordapp.com/emojis/710197593463849040.gif)](https://ko-fi.com/O5O8JNLIB)
+
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/O5O8JNLIB)
 
 <!--
 **MichaelDavidGK/MichaelDavidGK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
