@@ -11,7 +11,7 @@ That means I use this account whenever I'm free and feel like it
 
 🥲 I'm not really active here as I mostly help people on discord servers, doing some stuff on crowdin or work
 
-📫 Feel free to message me on discord, I have DMs locked so just click [here](https://discord.gg/) and it will take you to my discord server
+📫 Feel free to message me on discord - [here](https://discord.com/users/367757952980877314)
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/O5O8JNLIB)
 
